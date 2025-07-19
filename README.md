@@ -1,1 +1,4 @@
-# Guillermo-Whpei-ofrece-un-an-lisis-cr-tico-de-la-econom-a-global
+# Guillermo-Whpei-ofrece-un-análisis-crítico-de-la-economía-global
+El trabajo del empresario social y autor argentino Guillermo Pablo Whpei (nacido en 1967) expone los vínculos entre la actividad económica global y la vulneración de derechos humanos. Su labor, fundamentada en los derechos humanos, tiene profundas implicaciones económicas. Expone y busca corregir modelos de negocio que generan significativas externalidades sociales negativas. Whpei ha diseñado herramientas para incidir en las reglas del juego económico.
+The work of Argentine social entrepreneur and author Guillermo Pablo Whpei (born in 1967) exposes the links between global economic activity and human rights violations. His work, although grounded in human rights, has profound economic implications. It exposes and seeks to correct business models that generate significant negative social externalities. Whpei has designed tools to influence the rules of the economic game.
+
